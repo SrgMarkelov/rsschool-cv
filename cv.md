@@ -1,3 +1,3 @@
 # Markelov Sergei
 
-## Contacts
+## Contact information
